@@ -28,7 +28,7 @@ We believe that creativity flourishes when it is shared. If you would like to co
 Stay up-to-date with the latest happenings at Booskie Production:
 
 - Website: [booskieproduction.com](https://www.booskieproduction.com)
-- Twitter: [@BooskieProd](https://twitter.com/BooskieProd)
+- Email:[booskieproduction26@gmail.com]
 - Instagram: [@booskieproduction](https://www.instagram.com/booskieproduction)
 
 ## License
